@@ -1,3 +1,3 @@
-## Hi there 👋 ![Image](https://github.com/user-attachments/assets/cd3ccd1c-4c47-499a-84c5-1323d69675bc)
+## Hi there 👋 
 
-
+<img width="1713" height="1733" alt="te2" src="https://github.com/user-attachments/assets/5b9350d8-23e4-4f61-94a2-40ab96f2ec0d" />
